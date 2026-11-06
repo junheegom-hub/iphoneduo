@@ -1,9 +1,5 @@
 # 아이폰 듀오 한국에서 직접 써보니 또 다르네요. 궁금했던 것들 직접 확인했습니다. 앱 최적화?
 
-**출처:** [더신자 TheSINZA](https://www.youtube.com/channel/UCMUnjdq-yLc_LkkPsIMTFug)  
-**날짜:** 2026.10.21  
-**영상 길이:** 10:05  
-**영상 링크:** https://www.youtube.com/watch?v=qzvLgFluaE4
 
 ---
 
